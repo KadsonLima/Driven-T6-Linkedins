@@ -4,3 +4,5 @@
 # Linkedins
 
 - [Ayrton Macaulay Porto de Gois](https://www.linkedin.com/in/ayrton-porto/) :blush:
+- [Kadson Lima](https://www.linkedin.com/in/kadsonlima/) 
+
